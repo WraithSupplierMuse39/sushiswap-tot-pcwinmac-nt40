@@ -1,4 +1,4 @@
-# 
+# Último sushiswap trading bot preajustes for Mac OS | Profesional sushiswap trading bot preajustes for PC Windows. Featuring pools de liquidez DEX and API de intercambio descentralizado — optimized for maximum performance.
 
 
 
